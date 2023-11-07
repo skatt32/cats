@@ -9,4 +9,4 @@
 
 Вот как они выглядят 
 
-![Alt text](image.png)
+![три кошки](https://w.forfun.com/fetch/0c/0c874ef1cb9a53dac440b3e962c8350c.jpeg)https://w.forfun.com/fetch/0c/0c874ef1cb9a53dac440b3e962c8350c.jpeg)
